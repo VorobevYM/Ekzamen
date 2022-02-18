@@ -1,2 +1,0 @@
-"# Ekzamen" 
-"# Ekzamen" 
